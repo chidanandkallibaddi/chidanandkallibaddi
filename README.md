@@ -2,6 +2,7 @@
 
 ________________________________________________________________________
 
+I am a Red Team aspirant and Currently pursuing Btech Cyber Security , I have been developing my skills in Cyber Security for the last 2 years. 
 
 
 
